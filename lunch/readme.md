@@ -18,7 +18,7 @@
 
 
 ## Steps for preparation:
-- butter 4 slices of bread (1 TBS each)  
+- butter 4 slices of bread (.25 TBS each)  
 - add buttered slices to frying pan
 - once bread has browned, flip
 - add 1/2 cup of shredded cheese to 2 of the slices*
