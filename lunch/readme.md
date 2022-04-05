@@ -28,7 +28,7 @@
 
 
 ### Notes:
--* amount & type of cheese may varry based on preferences
+-* amount & type of cheese may vary based on preferences
 
 
 ### Codemates #2
