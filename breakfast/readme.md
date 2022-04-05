@@ -18,7 +18,7 @@ Fork
 Whisk
 Spoon
 Pan
-Flipper
+Spatula
 
 ## Steps for preparation:
 1. Go to Trader Joes for ingredients
