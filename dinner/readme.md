@@ -11,7 +11,7 @@ Parmasean cheese
 
 
 ## Equipment needed:
-very very large pot
+very large pot
 spoon
 faucet for water
 collinder 
