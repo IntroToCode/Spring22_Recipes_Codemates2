@@ -6,7 +6,7 @@
 
 ## Ingredients:
 - sourdough bread
-- 1 TBS butter
+- 4 TBS butter
 - 1 cup shreeded cheese 
 
 
