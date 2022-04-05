@@ -10,7 +10,6 @@
 Pancake mix
 Tablespoon of olive oil
 Cinnamon
-BBQ Sauce
 Butter
 
 ## Equipment needed:
