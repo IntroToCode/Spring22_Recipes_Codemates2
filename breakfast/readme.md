@@ -13,12 +13,12 @@ Cinnamon
 Butter
 
 ## Equipment needed:
-Bowl
-Fork
-Whisk
-Spoon
-Pan
-Spatula
+- Bowl
+- Fork
+- Whisk
+- Spoon
+- Pan
+- Spatula
 
 ## Steps for preparation:
 1. Go to Trader Joes for ingredients
