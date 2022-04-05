@@ -6,7 +6,7 @@
 
 ## Ingredients:
 - sourdough bread
-- 4 TBS butter
+- 1 TBS butter
 - 1 cup shreeded cheese 
 
 
@@ -25,6 +25,7 @@
 - put the remaining 2 slices on top of the cheese to create a sandwich 
 - press cast iron skillet ontop of the sandwhiches and allow cheese to melt (~5 min)
 - Remove from skillet and serve sandwiches cut in half 
+- Prepare aoli sauce for dipping
 
 
 ### Notes:
