@@ -29,16 +29,16 @@ Spatula
 6. Whisk together until medium consistency
 7. Turn on stove to medium fire
 8. Put butter on stove til melty
-9. Pour pancake mix into stove
+9. Pour pancake mix onto pan 
 10. Flip pancake once bubbles appear
-11. Pour second pancake into stove
+11. Pour second pancake onto pan
 12. And so on...
 
 
 ### Notes:
- 
+Serve with maples syrup, powdered sugar, peanutbutter, etc.
 Add other seasonings to mix as taste desires
-Can use almond milk, oat milk, coconut milk, dairy milk, etc. depending on the vegan level
+Can use almond milk, oat milk, coconut milk, dairy milk, etc. & apple sauce as sub for egg depending on the vegan level
 
 
 ### Codemates #2
