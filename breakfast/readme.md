@@ -26,7 +26,7 @@ Butter
 3. Mix milk into bowl
 4. Mix oil into bowl
 5. Pancake mix into bowl
-6. Whisk together until medium consistency
+6. Whisk together until no more clumps in batter (smooth consistency)
 7. Turn on stove to medium fire
 8. Put butter on stove til melty
 9. Pour pancake mix onto pan 
@@ -37,7 +37,7 @@ Butter
 
 ### Notes:
 Serve with maples syrup, powdered sugar, peanutbutter, etc.
-Add other seasonings to mix as taste desires
+Add other seasonings to mix as taste desires (blueberries, chocolate chips, etc)
 Can use almond milk, oat milk, coconut milk, dairy milk, etc. & apple sauce as sub for egg depending on the vegan level
 
 
