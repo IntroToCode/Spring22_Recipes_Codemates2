@@ -26,7 +26,7 @@ Stove
 5. Drain pasta in collinder
 6. Let sit
 7. Put pasta in bowl
-
+8. Put away ingredients
 
 ### Notes:
 Sub with other types of pasta as desired
