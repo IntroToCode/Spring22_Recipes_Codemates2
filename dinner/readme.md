@@ -8,6 +8,7 @@
 Penne Noodles
 Marinara Sauce
 Parmasean cheese
+Oregano
 
 
 ## Equipment needed:
