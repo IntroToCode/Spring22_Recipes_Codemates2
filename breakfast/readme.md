@@ -11,6 +11,8 @@ Pancake mix
 Tablespoon of olive oil
 Cinnamon
 Butter
+Blueberries
+Banana
 
 ## Equipment needed:
 - Bowl
@@ -36,7 +38,7 @@ Butter
 
 
 ### Notes:
-Serve with maples syrup, powdered sugar, peanutbutter, etc.
+Serve with maples syrup, powdered sugar, peanutbutter, blueberries, banana, etc.
 Add other seasonings to mix as taste desires (blueberries, chocolate chips, etc)
 Can use almond milk, oat milk, coconut milk, dairy milk, etc. & apple sauce as sub for egg depending on the vegan level
 
