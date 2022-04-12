@@ -28,6 +28,7 @@ Stove
 6. Let sit
 7. Put pasta in bowl
 8. Put ingredients back into storage
+9. Do a dance!
 
 ### Notes:
 Sub with other types of pasta as desired
