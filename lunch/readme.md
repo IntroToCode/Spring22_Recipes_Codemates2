@@ -26,6 +26,7 @@
 - press cast iron skillet ontop of the sandwhiches and allow cheese to melt (~5 min)
 - Remove from skillet and serve sandwiches cut in half 
 - Prepare aoli sauce for dipping
+- Set the table
 
 
 ### Notes:
