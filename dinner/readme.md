@@ -8,6 +8,7 @@
 Penne Noodles
 Marinara Sauce
 Parmasean cheese
+Oregano
 
 
 ## Equipment needed:
@@ -26,7 +27,7 @@ Stove
 5. Drain pasta in collinder
 6. Let sit
 7. Put pasta in bowl
-8. Put away ingredients
+8. Put ingredients back into storage
 
 ### Notes:
 Sub with other types of pasta as desired
