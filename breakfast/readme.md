@@ -33,7 +33,7 @@ Butter
 10. Flip pancake once bubbles appear
 11. Pour second pancake onto pan
 12. And so on...
-
+13. Put away ingredients
 
 ### Notes:
 Serve with maples syrup, powdered sugar, peanutbutter, etc.
