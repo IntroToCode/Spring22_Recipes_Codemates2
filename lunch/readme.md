@@ -20,7 +20,7 @@
 ## Steps for preparation:
 - butter 4 slices of bread (.25 TBS each)  
 - add buttered slices to frying pan
-- once bread has browned, flip
+- once bread has turned golden brown, flip
 - add 1/2 cup of shredded cheese to 2 of the slices*
 - put the remaining 2 slices on top of the cheese to create a sandwich 
 - press cast iron skillet ontop of the sandwhiches and allow cheese to melt (~5 min)
